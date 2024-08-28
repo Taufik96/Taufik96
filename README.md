@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **taufikiqbalnur@gmail.com**
 
-- ⚡ Fun fact **Boring person**
+- ⚡ Fun fact **Nothing fun about me currently :(**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
